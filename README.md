@@ -1,2 +1,6 @@
 # theta-source.github.io
-Fiction by Theta Flowers. Dark fairy tales, folk horror, strange short stories.
+Theta Flowers
+
+Writer. Dark fairy tales and folk horror.
+
+Stitched in Thorns: Dark Fairy Tales for Restless Souls is out now on Amazon.
